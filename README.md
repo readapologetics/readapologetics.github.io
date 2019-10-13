@@ -1,1 +1,3 @@
-# readapologetics.github.io
+# Read Apologetics
+Truth by the Book
+---
